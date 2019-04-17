@@ -1,0 +1,2 @@
+# AllSpamHack
+CREATED BY: GUSWAHYU
